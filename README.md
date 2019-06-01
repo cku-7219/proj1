@@ -12,3 +12,4 @@ soghikdoghdga
 ifgjdgbwkguyew
 
 kolejna linia 
+linia ostatnia 
